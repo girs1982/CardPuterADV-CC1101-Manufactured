@@ -21,3 +21,8 @@ for donate
 💱PayPal: paypal.me/ganstagirs💱
 
 for questions https://t.me/CODE_GANSTA
+for 3 ant module
+![3 ant module ](11104041398.webp)
+https://github.com/girs1982/CardPuterADV-CC1101-Manufactured/blob/main/KG32_ADV_CS15_GD0_13_woork_040926.bin
+this firmware 
+🦊
